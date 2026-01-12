@@ -1,1 +1,0 @@
-# Joradjasa.github.io
